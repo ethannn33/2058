@@ -1,1 +1,1 @@
-Place pcitures here
+Place pictures here
